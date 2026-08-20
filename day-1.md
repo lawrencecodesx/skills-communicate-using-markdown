@@ -1,5 +1,5 @@
 # Daily Learning
 
-## Morning Planning
+## What I learned today
 
-## Review
+## Next step
